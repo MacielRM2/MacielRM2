@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... Shinku
 - 😄 Pronouns: ... I'm a guy
 - ⚡ Fun fact: ... Shinku > Suigintou
---> Alos gtfo
+--> Also gtfo
